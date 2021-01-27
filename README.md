@@ -1,1 +1,1 @@
-# gtycbjyth-rsschool-cv
+# rsschool-cv
