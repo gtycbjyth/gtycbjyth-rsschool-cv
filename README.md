@@ -1,1 +1,1 @@
-https://gtycbjyth.github.io/rsschool-cv/
+https://gtycbjyth.github.io/rsschool-cv/cv
